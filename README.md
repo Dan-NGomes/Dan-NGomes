@@ -1,3 +1,3 @@
 # DanGomes
-Olá meu nome é Daniel das Neves Gomes
+Olá pessoal, meu nome é Daniel das Neves Gomes
  
